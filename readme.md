@@ -31,4 +31,4 @@ Pesquisei algumas coisas por conta, para aguçar meus conhecimentos, e como de p
 
 ---
 
-Feito com ♥ por mim :cake:# cheesecakerecipe
+Feito com ♥ por mim :cake:
